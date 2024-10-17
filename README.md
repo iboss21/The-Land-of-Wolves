@@ -10,7 +10,7 @@
 
 ## 🏞️ Welcome to The Land of Wolves Roleplay!
 
-**The Land of Wolves** is a dynamic and historically immersive RedM roleplay server set in 19th century Georgia, USA. This server focuses on creating rich, community-driven narratives, traditional villages, clans, and bandits, blending history with realism. Become part of the 1800s as you engage in territorial control, survival, crafting, and trading, all within a deeply detailed world.
+**The Land of Wolves** is a dynamic and historically immersive RedM roleplay server set in the 19th-century Country of Georgia. This server focuses on creating rich, community-driven narratives, traditional villages, clans, and bandits, blending history with realism. Become part of the 1800s as you engage in territorial control, survival, crafting, and trading, all within a deeply detailed world.
 
 ---
 
